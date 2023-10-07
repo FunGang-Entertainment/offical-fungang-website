@@ -1,4 +1,4 @@
-# Offical FunGang Website
+# Offical Fungang Website
 
 
 Under construction!
